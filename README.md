@@ -1,5 +1,5 @@
 ### Hi there 👋
-![](https://github.com/varanofficial/varanofficial/blob/main/animegirl%20jiggle.gif)![](https://github.com/varanofficial/varanofficial/blob/main/animejiggle.gif)![]https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.printmag.com%2Fdesign-news%2Fsomeone-just-bought-a-gif-for-half-a-million-dollars%2F&psig=AOvVaw3iClZdkEb8z2hLI8aIBTY8&ust=1685369732891000&source=images&cd=vfe&ved=0CA4QjRxqFwoTCMCGydaZmP8CFQAAAAAdAAAAABAD)
+![](https://github.com/varanofficial/varanofficial/blob/main/animegirl%20jiggle.gif)![](https://github.com/varanofficial/varanofficial/blob/main/animejiggle.gif)![](https://i0.wp.com/www.printmag.com/wp-content/uploads/2021/02/4cbe8d_f1ed2800a49649848102c68fc5a66e53mv2.gif)
 - 🔭 I’m currently working on ...a lot of stuffs!
 - 🌱 I’m currently learning ...a hella lots of stufffs!!!!
 - 👯 I’m looking to collaborate on ...a lot sss off stuffs!!
