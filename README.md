@@ -1,5 +1,5 @@
 ### Hi there 👋
-![](https://github.com/varanofficial/varanofficial/blob/main/animegirl%20jiggle.gif)
+![](https://github.com/varanofficial/varanofficial/blob/main/animegirl%20jiggle.gif)![](https://github.com/varanofficial/varanofficial/blob/main/animejiggle.gif)
 - 🔭 I’m currently working on ...a lot of stuffs!
 - 🌱 I’m currently learning ...a hella lots of stufffs!!!!
 - 👯 I’m looking to collaborate on ...a lot sss off stuffs!!
