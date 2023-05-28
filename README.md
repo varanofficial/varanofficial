@@ -24,5 +24,6 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...Iam tired of Pronouns , i choose Default settings
 - ⚡ Fun fact: ...You are reding this!
 -->
-![](https://i0.wp.com/www.printmag.com/wp-content/uploads/2021/02/4cbe8d_f1ed2800a49649848102c68fc5a66e53mv2.gif)![](https://github.com/varanofficial/varanofficial/blob/main/AINIME%20GIRO%20RICARDO.gif)
+![](https://i0.wp.com/www.printmag.com/wp-content/uploads/2021/02/4cbe8d_f1ed2800a49649848102c68fc5a66e53mv2.gif)
+![](https://github.com/varanofficial/varanofficial/blob/main/AINIME%20GIRO%20RICARDO.gif)
 ![](https://www.whoa.in/201604-Org/-funny-gif-memes-gif-for-whatsapp-facebook-laughing-gif.gif)
